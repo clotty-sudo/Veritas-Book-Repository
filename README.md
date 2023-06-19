@@ -1,4 +1,4 @@
-# Red-Pill-Book-Repository
+# Veritas Book Repository
 Library with comprehensive entrepeneneurial material. This repository is updated constantly to my liking and pleasure.
 
 I do not promote the use of piracy. 
