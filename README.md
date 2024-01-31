@@ -5,11 +5,9 @@ I do not promote the use of piracy.
 Sail the high seas at your own risk!
 
 Any book recommendations please feel free to DM on twitter;
-https://twitter.com/ploutoskratia
+https://twitter.com/seekvirtus
 
 -"Amat Victoria Curam"
-
-https://peeplink.in/ad8a856857aa
 
 ⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⡿⠟⠉⠉⠉⠀⠀⠉⠙⠿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿
 ⣿⣿⣿⣿⣿⣿⣿⣿⣿⠿⠛⠛⠉⠉⠉⠉⠙⠛⠿⣿⣿⣿⣿⣿⣿⣿⣿⣿⠟⠉⠀⠰⣏⣤⣤⣆⣠⣀⣀⣀⣀⡉⠛⣿⣿⣿⣿⣿⣿⣿
